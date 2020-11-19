@@ -1,0 +1,2 @@
+# Semoga
+Jangan pernah menyerah
